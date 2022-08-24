@@ -1,0 +1,1 @@
+# TECNO-DP10A-Pro-II
